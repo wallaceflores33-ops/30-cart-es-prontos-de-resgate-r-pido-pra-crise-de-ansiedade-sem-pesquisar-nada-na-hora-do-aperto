@@ -1,0 +1,1 @@
+# 30-cart-es-prontos-de-resgate-r-pido-pra-crise-de-ansiedade-sem-pesquisar-nada-na-hora-do-aperto
